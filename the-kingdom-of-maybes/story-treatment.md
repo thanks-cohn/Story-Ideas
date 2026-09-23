@@ -18,6 +18,8 @@
 
 **Toma, the childhood brother:** Toma is another son or adopted brother of the Father's household, someone Aren knew while growing up and training. The two share the habits and memories of boys raised to fight for the same Father. They are separated by Aren's defection and meet again much later, after Aren has suffered a disastrous defeat. Toma eventually defects too. His love for Aren becomes the emotional center of the later story. He knows they were taught whom to love, but he comes to believe that the love he feels for his brother is his own, not merely something placed in him by the kingdom. His final act costs him his life and makes Aren's final confrontation with the Father possible.
 
+**Ilan, the brother Aren thought he had lost forever:** Ilan is one of Aren's brothers from the Father's household, distinct from Toma, the childhood companion who joins the rebellion. The Father once drew Ilan close as if to embrace him, then consumed him in a sudden act of terrible hunger. The kingdom deemed it acceptable because the Father had done it. In his last moments, Ilan felt doubt, and that doubt was enough to condemn him to Hell. Aren carries the memory of the brother who reached for a father's hug and received death instead. After the Father's defeat, Ilan's spirit is among those freed, and Aren finally gets to reach for his hand.
+
 **The brothers and the dead:** These are not just background losses. Some are children of the Father who have already been killed or devoured by him, and others are soldiers and companions lost during the rebellion. Their absence should be felt long before they appear again as spirits. The story begins with their deaths being accepted, explained away, or quietly feared. It ends with their liberation.
 
 **The Father's devotees:** The Father's armies include roughly three billion devoted followers, soldiers prepared to kill everyone who will not serve him. They sincerely believe that slaughter can bring their God glory, and that dying for him is an act of love. I do not want to treat them as faceless counters on a battlefield. They are people with families, memories, private affections, and names Aren will never know. Their planned violence is real, but so is the loss of their lives.
@@ -28,7 +30,7 @@
 
 I want the story to begin inside the Father's kingdom, before Aren ever thinks of rebellion. He and the other boys are brought up under a king they know as their Father. The Father's lion face is the face of God to them. It belongs in their prayers, their banners, their childhood memories, and the stories they are taught about why they exist.
 
-The kingdom looks glorious from within, but there are absences everywhere. Brothers who once trained beside Aren are no longer there. Some have been killed or devoured by the Father himself. Everyone knows this, although people find ways to explain it away because they cannot imagine a life outside the Father's love. Others are promised a place in some distant, greater kingdom that he is always preparing to bring about.
+The kingdom looks glorious from within, but there are absences everywhere. Brothers who once trained beside Aren are no longer there. Some have been killed or devoured by the Father himself. I want one of those memories to belong to Ilan. The Father brought him close for what looked like a hug, then, overtaken by hunger, tore off his head and devoured him. The kingdom called even that acceptable because it was the Father's act, and people kept finding ways to explain it away. In those last seconds, Ilan's heart experienced doubt, and he was sent to Hell for it. Aren remembers the almost-embrace as sharply as he remembers the loss. Others are promised a place in some distant, greater kingdom that the Father is always preparing to bring about.
 
 The Father's subjects are shown glimpses of those he has damned. The suffering is not hidden as a shameful secret. It is displayed as proof of his authority. The people are expected to praise him for it, even when those condemned are young, or were once familiar to them. To disagree openly can mean immediate death. His rule does not ask only for outward obedience. It asks that people love him utterly while looking at what he has done.
 
@@ -110,7 +112,7 @@ Aren reveals what has actually happened. The Father's own army supplied the sacr
 
 This is the act the Father never anticipated from his son. He knew Aren hated him for sacrificing people who loved him. He assumed that hatred meant Aren would never do the same kind of thing, even to stop him. Aren has done it, with full knowledge of what it costs.
 
-The Father realizes that the love and obedience he cultivated in his followers have made his downfall possible. The ritual takes hold. He can no longer simply command the world to free him. He is sent into Sheol.
+The Father realizes that the love and obedience he cultivated in his followers have made his downfall possible. The ritual takes hold. He can no longer simply command the world to free him. Aren sends him into Sheol, into the very Hell the Father intended for all the souls that were, are, or ever shall be. The Father must face the eternity he planned for everyone else.
 
 The scene can draw on the frightening, ancient imagery of divine judgment and descent into Hell, but I want the ending of this confrontation to stay personal. Aren is not gloating over a stranger. He is watching the Father he once loved disappear. He has finally understood that his Father killed his beloved children for people who might exist someday, for a kingdom always out of reach. He sends him away to that land of make-believe, then plants his sword in the ground.
 
@@ -118,7 +120,9 @@ The scene can draw on the frightening, ancient imagery of divine judgment and de
 
 Only after the Father's fall do we fully see what his defeat has changed. The souls he killed, devoured, or condemned are released from his dominion. The brothers Aren lost are among them. So are those who suffered in Hell, including people who had no way to resist him while alive.
 
-The Father, meanwhile, is made to endure the suffering he intended for others. His punishment corresponds to the immense eternity of torment that he planned and imposed. He is no longer standing above the condemned and demanding praise from those forced to watch.
+I want us to see the brothers rising. Among them is Ilan, the brother the Father had pulled into what looked like a hug before devouring him. The boy whose final moment of doubt was punished with Hell is free at last. Aren reaches toward his ghost, and Ilan reaches back. Their hands touch. It is the embrace they never got to finish, and the small, impossible reunion Aren has wanted since his brother was taken. Aren looks up and smiles. It is cathartic and bittersweet. The future he envisioned is here, and the person he longed to save can finally reach him. He is happy, but he knows all that was lost along the way.
+
+The Father, meanwhile, is made to endure the Hell he planned for every soul that was, is, or ever shall be. He is no longer standing above the condemned and demanding praise from those forced to watch. Those he imprisoned are going upward as he goes down.
 
 There is no need to make this a scene of uncomplicated celebration. Aren has freed the imprisoned and prevented the planned slaughter of trillions, but he has also caused the deaths of the Father's three billion devotees.
 
@@ -130,7 +134,7 @@ He does not need anyone to praise the sacrifice or pretend it was beautiful. His
 
 After the great religious and cosmic struggle, I want the story to end somewhere very small and peaceful. There is a little home in the Japanese countryside, with a quiet rural landscape around it. The scale of the final image should feel almost surprising after the throne rooms, battles, ritual ground, and descent into Sheol.
 
-Aren is there with the spirits of the people he lost. His brothers and comrades can speak with him again, not as prisoners of the Father, but as themselves. Toma is among the beloved dead whose presence he can finally meet without the Father's shadow over them.
+Aren is there with the spirits of the people he lost. His brothers and comrades can speak with him again, not as prisoners of the Father, but as themselves. Toma and Ilan are among the beloved dead whose presence he can finally meet without the Father's shadow over them. The touch of Ilan's hand is still with him. The future he fought for is no longer a kingdom of maybes. His brothers are here.
 
 Aren smiles. This does not mean that every loss has been repaired or that he has forgotten the three billion devotees. He can be happy to see his brothers and still mourn the strangers whose deaths made this possible.
 
@@ -152,4 +156,4 @@ The Father never anticipates that choice because he thinks the Son's horror at s
 
 **The intended theological contrast:** Although I use Father and Son imagery, I want Aren to be an antithesis of Jesus in the way this story understands that figure. I am imagining a son who will not defend, adore, or excuse the Father for the horrors he commits. The point is not that this savior deserves reverence simply because he is divine, or because the indignity and mechanical suffering of a deity in human flesh are treated as automatically meaningful. He is worthy of love and, in the story's provocative sense, worship because he truly loves humanity and wants people freed from his Father's evil. He opposes his Father, bears the cost of that opposition, and grieves even for enemies he has had to sacrifice. The salvation here is liberation from the Father's rule, not obedience to it.
 
-And after all that, I still want the ending to be warm. Not another throne. Not another demand for glory. Just a little house, the spirits of people he loves, the Devil smiling, and a boy running off toward the work he has chosen.
+And after all that, I still want the ending to be warm. The scene of Aren touching Ilan's ghost is the emotional answer to the Father's false embrace. The Father reached for his child and devoured him. Aren reaches for his brother and, finally, they can hold on to each other. The Father goes into the Hell he imagined for every soul, while the souls he kept there rise into freedom. That is the future Aren fought to make real. Not another throne. Not another demand for glory. Just a little house, the spirits of people he loves, the Devil smiling, and a boy running off toward the work he has chosen.
